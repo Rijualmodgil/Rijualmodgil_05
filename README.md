@@ -83,4 +83,4 @@ Currently focused on:
 💼 LinkedIn: https://linkedin.com/in/rijualmodgil  
 📧 Email: modgilrijul80@gmail.com  
 
-⭐ *Feel free to explore my repositories and connect with me!*  
+⭐ *Feel free to explore my repositories and connect with me! 
